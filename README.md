@@ -1,3 +1,9 @@
+Sir 有人在TG用你的账号行骗
+
+<img width="702" height="1280" alt="photo_2026-04-28_23-07-30" src="https://github.com/user-attachments/assets/cfadb412-afe1-4b04-8f60-1691e3de57f3" />
+
+
+
 # 【关于固件下载事项说明】：
 
 ## 因近段时间被人恶意针对与攻击，所以停了之前一切固件下载与分享。
